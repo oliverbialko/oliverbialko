@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @oliverbialko
+- 🎮 I’m interested in coding, guitar and gaming
+- 🧑🏻‍💻 I’m currently learning business & management and IT
